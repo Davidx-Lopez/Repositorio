@@ -1,3 +1,3 @@
 # Somos los mejores Ingenieros 
 
-## Ha Kevin le gusta el pn en cantidades 
+## Kevin es el mejor compañero 
